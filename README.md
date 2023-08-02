@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 I’m currently working on Shanghai
+- 🌱 I'm currently learning to make games
+- 😄 I have three cats
+- 🤔 Fans of Dark Souls-like games？
+- 📫 How to reach me: https://wrath.cc
